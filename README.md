@@ -1,1 +1,1 @@
-# apresenta-o
+ola me chamo rafaela tenho 16 anos estudo na escola elmoza de mariapolis/sp sou de uma familia umiude moro com meus padrinhos desde pequena sou uma pessoa que tudo me agrata o pouco que temos pra mim ja e o bastante e aprenti com o meus padrinhos que nao depente de como somos temos que ser feliz e sim sou muito feliz com as coisas que tenho e do jeito que sou eu amo criancas cuido dos meus sobrinhos 
